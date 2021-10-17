@@ -1,5 +1,4 @@
 
-### **Yazhini Hariharan - @thisisyazhini**
 
 Hi, I'm Yazhini - actively learning something new in this ever-changing frontend world.
 
