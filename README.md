@@ -7,6 +7,8 @@ I am a polyglot and I always love to learn new languages be it programming or hu
 
 In all modesty, I speak a handful of languages in both human and machine worlds 😉 
 
+![image](https://github.com/thisisyazhini/thisisyazhini/raw/main/Yazhini-Banner.png)
+
 Somethings I like about myself : 
 
 1. I voice even my silly opinions
